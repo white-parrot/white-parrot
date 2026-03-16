@@ -81,7 +81,7 @@
 ## 🌐 Connect With Me
 
 - 💼 LinkedIn: https://www.linkedin.com/in/runtimeturtle/
-- 📧 Email: (add your email here)
+- 📧 Email: runtimeturtle@gmail.com
 
 ---
 
